@@ -1,4 +1,7 @@
 # Kelby Barnewolt
-### Student at the University of Iowa
+## Student at the University of Iowa
 ### Majoring in Finance & Business Analytics
-Github profile information
+
+kelby-barnewolt@uiowa.edu
+https://www.kelbybarnewolt.com
+https://www.linkedin.com/in/kelby-barnewolt/
