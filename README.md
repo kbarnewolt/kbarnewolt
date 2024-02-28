@@ -1,6 +1,6 @@
 # Kelby Barnewolt
-## Student at the University of Iowa
-### Majoring in Finance & Business Analytics
+## University of Iowa Alumni
+### Majored in Finance & Business Analytics
 
 kelby-barnewolt@uiowa.edu
 <br>
